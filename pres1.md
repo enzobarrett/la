@@ -20,4 +20,13 @@
     * Pretending not to speak German
     * Wearing red clothing
     * Not sitting next to Germans on public transit
-
+* There were many factors that made Norway doomed to forgo neutrality including:
+  1. The strategic placement of the country causing a plan for:
+  1. Norway and Great Britain to want to invade
+  1. The Nazis also wanted to extra invade because they were Arian 
+* It was still important for people to resist even with the Nazi presence:
+  * Jon's father vs
+  * Trond's father
+* The characters represent many average citizens except for Trond's father which was out of normal
+* Many Norwegian people had no option, it was cooperate or get shot
+* Norway had many effects that happened to other countries, including fear, resent for their country, and anger towards how people handled it.  
